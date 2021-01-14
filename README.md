@@ -1,0 +1,2 @@
+# Research-Digital-Currencies
+Network of Research in Digital Currency and TRON Foundation, with the support of researchers and academics interested in research activities in the field of digital currencies and the TRON Foundation, provide its members with legal benefits and support, and commercialization services. Provides capacity building for the development of knowledge related to digital currencies and synergies.
